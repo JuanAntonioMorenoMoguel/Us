@@ -1,2 +1,0 @@
-# Us
-Related US material
